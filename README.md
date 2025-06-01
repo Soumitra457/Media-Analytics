@@ -7,3 +7,8 @@ Facebook Ad Analysis
 
 ![Screenshot 2025-06-01 223135](https://github.com/user-attachments/assets/30e4b643-4cc9-4384-ad29-10404d319f63)
 
+Linkedin Dashboard
+![Screenshot 2025-06-02 002355](https://github.com/user-attachments/assets/634ec8dd-d3f8-4aed-9ebb-9066f7a94927)
+
+![Screenshot 2025-06-02 002410](https://github.com/user-attachments/assets/f8523961-44e0-4c44-af17-44c3702bbb2b)
+
